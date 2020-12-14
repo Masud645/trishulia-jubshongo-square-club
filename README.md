@@ -1,1 +1,0 @@
-# trishulia-jubshongo-square-club
